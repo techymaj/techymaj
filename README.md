@@ -1,6 +1,6 @@
 # Techymaj - Embracing Purposeful Innovation 🚀
 
-## The things we do on purpose, We tend to repeat! 💡🔁
+## The things we do on purpose, we tend to repeat! 💡🔁
 
 ### My Stats:
 Check out my GitHub streak! 📈🔥
